@@ -1,1 +1,1 @@
-# skripsi-ikromul
+# skripsi
